@@ -7,7 +7,7 @@ I Always Love to work beyond my comfort zone and ready to accept challanges.
 
 #
 <samp>
- I am Good Learner and Always improving myself for technolgies and Era
+I am a Creative🎡, Time Punctual👩‍🎓, Dedicated🎯, Goal-oriented Individual👩‍💻 with Decent Moral Values and Ethicates🙇‍♀️ along with a High-Energy Level🤹‍♀️, Honed Communication Skills👐, Strong Organizational Skills👮‍♀️, and Meticulous Attention🕵️‍♀️ to detail.
 </samp>
    
 #
